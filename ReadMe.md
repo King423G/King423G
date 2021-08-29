@@ -1,6 +1,4 @@
 - 👋 Hi, I’m @King423G
-- 
-
 - 👀 I’m interested in ...
 - 
           RWBY, Genshin Impact, Arknights ...
